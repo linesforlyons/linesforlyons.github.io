@@ -8,6 +8,7 @@ subtitle: Original date 2023-03-21
 #tags: [books, test]
 ---
 To Miss Wadsworth:
+
 I regret to inform you that your sixty-five-pound-black-haired-snub-nosed-(son-of-a-bitch)-poodle Dorothy has died. I regret further to inform you that I have killed him.
 
 Often when we (meaning you, the bereaved) first outsource emotional self-satisfaction to a creature than cannot and will not fight back, we (meaning you, because you are (were) the owner of the dead son-of-a-bitch poodle) like to think we are doing the damned beast a favor by taking him in. 
